@@ -1,3 +1,4 @@
+![Design sem nome (1)](https://github.com/RianTMJ/Escola_Jazz/assets/81371744/b374ff3a-5d6e-4e19-973b-6940b4dc6a1f)
 # Escola_Jazz
 
 ## Introdução
